@@ -1,1 +1,0 @@
-# Del-ADN-a-la-prote-na
